@@ -1,5 +1,3 @@
-### Hi there 👋
-
 # 𝗛𝗲𝗹𝗹𝗼 Je suis Sébastien HULMANN
 
 
