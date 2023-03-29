@@ -1,7 +1,7 @@
 # 𝗛𝗲𝗹𝗹𝗼 Je suis Sébastien HULMANN
 
 
-Je suis actuellement en formation Développeur Web et Web Mobile
+Je suis actuellement en formation Développeur Web et Web Mobile à l'AFCI de Liévin.
 
 
 
